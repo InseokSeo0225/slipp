@@ -1,2 +1,0 @@
-# slipp
-Q&amp;A
